@@ -1,1 +1,2 @@
-# GenshinRanked
+<h1>ALL HAIL THIJS, THE GRANDMASTER OF SHEEP!!!</h1>
+<p>Allow LV100 C6R2 Yoimiya</p>
